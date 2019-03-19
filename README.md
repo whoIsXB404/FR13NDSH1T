@@ -1,2 +1,6 @@
-# TNXB-beta
-From : Fr13ndSh!t | whoIsXB404 | InYourTn./Low_gL
+# FR13NDSH!T
+
+associate ~ Fr13ndSh!t
+Author    ~ whoIsXB404
+          ~ InYourTn./Low_gl
+          
